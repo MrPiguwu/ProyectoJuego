@@ -9,5 +9,5 @@ Descomprimir el archivo .zip
 https://youtu.be/Fw69Ez88N-g
 
 
-##Link Video Promocioal:
+## Link Video Promocioal:
 https://youtu.be/IMCOgKZ2MFI
